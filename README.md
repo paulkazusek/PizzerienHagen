@@ -19,6 +19,6 @@
 | Pizzeria Roma | Wittekindstraße 6, 58097 Hagen | [Website](https://www.pizzeriaroma-domenico.de/) | [Instagram](https://www.instagram.com/pizzeriaroma.hagen) | | [Maps](https://maps.app.goo.gl/qQ8GYPZnykQYXSaE9) |
 | City Pizza Hagen | Altenhagener Str. 36, 58097 Hagen | [Website](https://city-pizzahagen.de/) | [Instagram](https://www.instagram.com/city_pizza_hagen) | | [Maps](https://maps.app.goo.gl/AR4ESL3oqbKr3znU7) |
 | Pizzeria Nonnarosa | Altenhagener Str. 3, 58097 Hagen | | | | [Maps](https://maps.app.goo.gl/LxcgxMXTd4R6tfEH8) |
-| | | | | | |
+| Ha’sta La Pizza Hagen | Hestertstraße 1, 58135 Hagen | [Website](https://hastala-pizza.de/) | [Instagram](https://www.instagram.com/hastalapizza__) | | [Maps](https://maps.app.goo.gl/MJ2MJCM4Kwpoo8fcA) |
 | | | | | | |
 | | | | | | |
