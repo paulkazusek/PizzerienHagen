@@ -17,5 +17,5 @@
 | Ristorante Pizzeria toto | Buscheystraße 34, 58089 Hagen | [Website](https://toto-hagen.de/) | | | [Maps](https://maps.app.goo.gl/dRvc8mfB8PLCuf2d6) |
 | Pizzeria Basilico | Buscheystraße 72 • 58089 Hagen | [Website](https://www.pizzeriabasilico.de/) | [Instagram](https://www.instagram.com/ristorante_pizzeria__basilico) | | [Maps](https://maps.app.goo.gl/mrQbG1hZrMAi7YsYA) |
 | Pizzeria Roma | Wittekindstraße 6, 58097 Hagen | [Website](https://www.pizzeriaroma-domenico.de/) | [Instagram](https://www.instagram.com/pizzeriaroma.hagen) | | [Maps](https://maps.app.goo.gl/qQ8GYPZnykQYXSaE9) |
-| | | | | | |
+| City Pizza Hagen | Altenhagener Str. 36, 58097 Hagen | [Website](https://city-pizzahagen.de/) | [Instagram](https://www.instagram.com/city_pizza_hagen) | | [Maps](https://maps.app.goo.gl/AR4ESL3oqbKr3znU7) |
 | | | | | | |
