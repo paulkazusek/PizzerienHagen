@@ -12,7 +12,7 @@
 | Don Peppino | Margaretenstraße 27, 58089 Hagen | [Website](https://ristorante-donpeppino.de/) | | [tripadvisor](https://www.tripadvisor.de/Restaurant_Review-g187377-d25357067-Reviews-Restaurant_Don_Peppino-Hagen_North_Rhine_Westphalia.html) | [Maps](Website) |
 | Ristorante Pizzeria La Candela | Frankfurter Str. 98, 58095 Hagen | [Website](https://www.lacandela-hagen.de/) | [Instagram](https://instagram.com/ristorante_lacandela) | [tripadvisor](https://www.tripadvisor.de/Restaurant_Review-g187377-d3974899-Reviews-La_Candela-Hagen_North_Rhine_Westphalia.html) | [Maps](https://maps.app.goo.gl/jnroFgssWmnFnau28) |
 | La Trattoria - Italian Casual | Berchumer Str. 74, 58093 Hagen | [Website](https://www.latrattoria-hagen.de/) | [Instagram](https://www.instagram.com/latrattoria_hagen) | | [Maps](https://maps.app.goo.gl/yMbGRW3PMcM3ENXP8) |
-| | | | | | |
+| Pizzeria Murino | Boeler Str. 4, 58097 Hagen | [Website](https://www.pizzeriamurino.de/home) | [Instagram](https://www.instagram.com/pizzeria_murino) | | [Maps](https://maps.app.goo.gl/1eR2Y8M64M3C2osA8) |
 | | | | | | |
 | | | | | | |
 | | | | | | |
