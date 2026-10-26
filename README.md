@@ -10,5 +10,5 @@
 | Pizzeria Gabbiano | Haldener Str. 175, 58095 Hagen | [Website](http://pizzeriagabbiano.de/) | [Instagram](https://instagram.com/pizzeria.gabbiano) | [tripadvisor](https://www.tripadvisor.de/Restaurant_Review-g187377-d1347268-Reviews-Gabbiano-Hagen_North_Rhine_Westphalia.html) | [Maps](https://maps.app.goo.gl/2Q2aTRDFTJ45qBCQ7) |
 | Pizzeria Trattoria Il Fabbro | Corbacher Straße 10 A, 58135 Hagen | [Website](https://www.il-fabbro.de/) | [Instagram](https://instagram.com/trattoria_ilfabbro) | [tripadvisor](https://www.tripadvisor.de/Restaurant_Review-g187377-d5507149-Reviews-Pizzeria_Trattoria_Il_Fabbro-Hagen_North_Rhine_Westphalia.html) | [Maps](https://maps.app.goo.gl/ERQaW5SJjNTjgrM3A) |
 | Don Peppino | Margaretenstraße 27, 58089 Hagen | [Website](https://ristorante-donpeppino.de/) | | [tripadvisor](https://www.tripadvisor.de/Restaurant_Review-g187377-d25357067-Reviews-Restaurant_Don_Peppino-Hagen_North_Rhine_Westphalia.html) | [Maps](Website) |
-| | | | | | |
+| Ristorante Pizzeria La Candela | Frankfurter Str. 98, 58095 Hagen | [Website](https://www.lacandela-hagen.de/) | [Instagram](https://instagram.com/ristorante_lacandela) | [tripadvisor](https://www.tripadvisor.de/Restaurant_Review-g187377-d3974899-Reviews-La_Candela-Hagen_North_Rhine_Westphalia.html) | [Maps](https://maps.app.goo.gl/jnroFgssWmnFnau28) |
 | | | | | | |
