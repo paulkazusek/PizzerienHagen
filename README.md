@@ -13,7 +13,7 @@
 | Ristorante Pizzeria La Candela | Frankfurter Str. 98, 58095 Hagen | [Website](https://www.lacandela-hagen.de/) | [Instagram](https://instagram.com/ristorante_lacandela) | [tripadvisor](https://www.tripadvisor.de/Restaurant_Review-g187377-d3974899-Reviews-La_Candela-Hagen_North_Rhine_Westphalia.html) | [Maps](https://maps.app.goo.gl/jnroFgssWmnFnau28) |
 | La Trattoria - Italian Casual | Berchumer Str. 74, 58093 Hagen | [Website](https://www.latrattoria-hagen.de/) | [Instagram](https://www.instagram.com/latrattoria_hagen) | | [Maps](https://maps.app.goo.gl/yMbGRW3PMcM3ENXP8) |
 | Pizzeria Murino | Boeler Str. 4, 58097 Hagen | [Website](https://www.pizzeriamurino.de/home) | [Instagram](https://www.instagram.com/pizzeria_murino) | | [Maps](https://maps.app.goo.gl/1eR2Y8M64M3C2osA8) |
-| La Barbarella | Salzburger Str. 3, 58135 Hagen | [Website](https://labarbarella-hagen.de/) | [Instagram](https://www.instagram.com/pizzerialabarbarella) | | [Maps](https://maps.app.goo.gl/r4u9kLp6c42oQsMQ8) |
+| Pizzeria La Barbarella | Salzburger Str. 3, 58135 Hagen | [Website](https://labarbarella-hagen.de/) | [Instagram](https://www.instagram.com/pizzerialabarbarella) | | [Maps](https://maps.app.goo.gl/r4u9kLp6c42oQsMQ8) |
 | Ristorante Pizzeria toto | Buscheystraße 34, 58089 Hagen | [Website](https://toto-hagen.de/) | | | [Maps](https://maps.app.goo.gl/dRvc8mfB8PLCuf2d6) |
 | Pizzeria Basilico | Buscheystraße 72 • 58089 Hagen | [Website](https://www.pizzeriabasilico.de/) | [Instagram](https://www.instagram.com/ristorante_pizzeria__basilico) | | [Maps](https://maps.app.goo.gl/mrQbG1hZrMAi7YsYA) |
 | | | | | | |
