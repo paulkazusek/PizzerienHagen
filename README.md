@@ -20,5 +20,5 @@
 | City Pizza Hagen | Altenhagener Str. 36, 58097 Hagen | [Website](https://city-pizzahagen.de/) | [Instagram](https://www.instagram.com/city_pizza_hagen) | | [Maps](https://maps.app.goo.gl/AR4ESL3oqbKr3znU7) |
 | Pizzeria Nonnarosa | Altenhagener Str. 3, 58097 Hagen | | | | [Maps](https://maps.app.goo.gl/LxcgxMXTd4R6tfEH8) |
 | Ha’sta La Pizza Hagen | Hestertstraße 1, 58135 Hagen | [Website](https://hastala-pizza.de/) | [Instagram](https://www.instagram.com/hastalapizza__) | | [Maps](https://maps.app.goo.gl/MJ2MJCM4Kwpoo8fcA) |
-| | | | | | |
+| Pizzeria Romantica | Voerder Str. 10, 58135 Hagen | [Website](https://pizzeria-romantica-haspe.de/) | | | [Maps](https://maps.app.goo.gl/29x7DG68A1JM75Vk6) |
 | | | | | | |
