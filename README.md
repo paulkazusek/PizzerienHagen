@@ -23,6 +23,8 @@
 | Pizzeria Romantica | Voerder Str. 10, 58135 Hagen | [Website](https://pizzeria-romantica-haspe.de/) | | | [Maps](https://maps.app.goo.gl/29x7DG68A1JM75Vk6) |
 | Hestert-Pizzeria | Berliner Str. 79, 58135 Hagen | [Website](https://hestert-pizzeria.vercel.app/) | [Instagram](https://www.instagram.com/hestertpizzeria) | | [Maps](https://maps.app.goo.gl/aFd2u5VNEKtcHWqq8) |
 | Università della Pizza | Swolinzkystraße 13, 58135 Hagen | | | | [Maps](https://maps.app.goo.gl/C7cTAH85mE7K2usg7) |
+| Pizzeria Prego | Buscheystraße 74, 58089 Hagen | [Website](https://www.pizzeria-prego-hagen.de/) | | | [Maps](https://maps.app.goo.gl/ULutmwe5pDU6QFCp8) |
+| | | | | | |
 | | | | | | |
 | | | | | | |
 | | | | | | |
