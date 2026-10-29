@@ -27,4 +27,9 @@
 | L'Osteria Hagen | Friedrich-Ebert-Platz 3, 58095 Hagen | [Website](https://losteria.net/) | | | [Maps](https://maps.app.goo.gl/E24Fv8U39EB6pQqB9) |
 | Pizzeria Centrale daLu | Elberfelder Str. 14, 58095 Hagen | | | | [Maps](https://maps.app.goo.gl/nMQGNgN1QDY2GfxA6) |
 | Pizzeria Romantica Hagen-Stadtmitte | Hochstraße 95, 58095 Hagen | [Website](https://www.pizzeria-romantica-hagen.com/) | [Instagram](https://www.instagram.com/_pizzeria_romantica_) | | [Maps](https://maps.app.goo.gl/QKecX2dPRe2AStLu9) |
+| Pizzeria Puglia 2 | Boeler Str. 21, 58097 Hagen | [Website](https://puglia2.de/) | | | [Maps](https://maps.app.goo.gl/qxAKj1qGGkqc1rnq7) |
+| | | | | | |
+| | | | | | |
+| | | | | | |
+| | | | | | |
 | | | | | | |
