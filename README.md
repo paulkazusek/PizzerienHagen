@@ -33,7 +33,7 @@
 | La Trattoria - Italian Casual | Berchumer Str. 74, 58093 Hagen | [Website](https://latrattoria-hagen.de/) | [Instagram](https://www.instagram.com/latrattoria_hagen/) | | [Maps](https://maps.app.goo.gl/zeLqTMB4GzaYHyXX6) |
 | Pizzeria Angelo | Cunostraße 58, 58093 Hagen | [Website](https://speisekarte.codezwerg.de/view/sbdyyhyy) | | | [Maps](https://maps.app.goo.gl/gSRq1SzW6gF5qK53A) |
 | Pizzeria Piccolo Pelle | Preinstraße 7, 58119 Hohenlimburg | [Website](http://www.piccolopelle.de/) | | | [Maps](https://maps.app.goo.gl/vnNKgRw98u1CW5W79) |
-| | | | | | |
+| Casantonio | Lohmannstraße 12, 58119 Hohenlimburg | [Website](https://casantonio.de/) | | | [Maps](https://maps.app.goo.gl/SLj71D3N2Mt5hfcu8) |
 | | | | | | |
 | | | | | | |
 | | | | | | |
