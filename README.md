@@ -25,6 +25,6 @@
 | Università della Pizza | Swolinzkystraße 13, 58135 Hagen | | | | [Maps](https://maps.app.goo.gl/C7cTAH85mE7K2usg7) |
 | Pizzeria Prego Hagen | Buscheystraße 74, 58089 Hagen | [Website](https://www.pizzeria-prego-hagen.de/) | | | [Maps](https://maps.app.goo.gl/ULutmwe5pDU6QFCp8) |
 | L'Osteria Hagen | Friedrich-Ebert-Platz 3, 58095 Hagen | [Website](https://losteria.net/) | | | [Maps](https://maps.app.goo.gl/E24Fv8U39EB6pQqB9) |
-| | | | | | |
+| Pizzeria Centrale daLu | Elberfelder Str. 14, 58095 Hagen | | | | [Maps](https://maps.app.goo.gl/nMQGNgN1QDY2GfxA6) |
 | | | | | | |
 | | | | | | |
