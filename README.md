@@ -28,7 +28,7 @@
 | Pizzeria Centrale daLu | Elberfelder Str. 14, 58095 Hagen | | | | [Maps](https://maps.app.goo.gl/nMQGNgN1QDY2GfxA6) |
 | Pizzeria Romantica Hagen-Stadtmitte | Hochstraße 95, 58095 Hagen | [Website](https://www.pizzeria-romantica-hagen.com/) | [Instagram](https://www.instagram.com/_pizzeria_romantica_) | | [Maps](https://maps.app.goo.gl/QKecX2dPRe2AStLu9) |
 | Pizzeria Puglia 2 | Boeler Str. 21, 58097 Hagen | [Website](https://puglia2.de/) | | | [Maps](https://maps.app.goo.gl/qxAKj1qGGkqc1rnq7) |
-| Pizzeria Elionor | Pizzeria Elionor | [Website](https://pizzeria-elionor-hagen.de/) | | | [Maps](https://maps.app.goo.gl/v8f619aaZR3oQApn8) |
+| Pizzeria Elionor | Frankfurter Str. 35A, 58095 Hagen | [Website](https://pizzeria-elionor-hagen.de/) | | | [Maps](https://maps.app.goo.gl/v8f619aaZR3oQApn8) |
 | Pizzeria Italia | Bolohstraße 39, 58093 Hagen | | | | [Maps](https://maps.app.goo.gl/7yYDMucDqaxotJMB8) |
 | La Trattoria - Italian Casual | Berchumer Str. 74, 58093 Hagen | [Website](https://latrattoria-hagen.de/) | [Instagram](https://www.instagram.com/latrattoria_hagen/) | | [Maps](https://maps.app.goo.gl/zeLqTMB4GzaYHyXX6) |
 | Pizzeria Angelo | Cunostraße 58, 58093 Hagen | [Website](https://speisekarte.codezwerg.de/view/sbdyyhyy) | | | [Maps](https://maps.app.goo.gl/gSRq1SzW6gF5qK53A) |
